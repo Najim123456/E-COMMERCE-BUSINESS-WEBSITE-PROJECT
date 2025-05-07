@@ -7,7 +7,7 @@
 
 ## PRESENTATION FILE
 
-https://in.docworkspace.com/d/sINHUzJKbAqCh6MAG?lg=en-US&sa=601.1074&ps=1&fn=e%20commerce%20business%20website%20ppt.pptx
+https://in.docworkspace.com/d/sIJPHyMmUAtXA7MAG
 
 ## VIDEO PRESENTATION
 
@@ -15,5 +15,5 @@ https://drive.google.com/file/d/1ZYMtRTM-U7MzxQwZ8XNRd1FQ36OkKFV7/view?usp=drive
 
 ## PROJECT REPORT 
 
-
+https://in.docworkspace.com/d/sIKHHyMmUAoXH7MAG
 
